@@ -1,3 +1,3 @@
 # Assignment-one
 
-# Abdikariim Abdulkhadir Aweis (Eng ck)
+# Abdikariim Abdulkhaadir Aweis (Eng ck)
